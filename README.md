@@ -1,1 +1,2 @@
-# Reacci-n-aleccionadora
+# Reacción-aleccionadora
+El restablecimiento parcial de la libertad de comercio, la implantación de algunos impuestos directos a la población, y algunas otras medidas «reaccionarias», adoptadas recientemente por el comunismo ruso, ponen de manifiesto la reacción que se viene operando en el pensamiento y en los métodos de acción del Gobierno de los Soviética. El propio líder bolchevique, Lenin, ha hecho públicos sus propósitos de adoptar nuevas normas políticas, si bien se cree obligado a formular, a renglón seguido, algunos distingos y salvedades a fin de demostrar que este cambio de táctica no altera fundamentalmente el gran proceso de transformación social seguido por la revolución en marcha.
